@@ -1,0 +1,1 @@
+NO COPYRIGHT ME >:( THX
